@@ -28,4 +28,4 @@ Para só então, ao som mágico da orquestra água, se apaixonar.
 
 professor @LiziBugalski
 
-IB: https://www.pensador.com/poemas_de_lua/25/
+![imagem](https://pin.it/3wEpYxW)
